@@ -1,1 +1,2 @@
-# SKMINE.github.oh
+# SKMINE.github.io
+
